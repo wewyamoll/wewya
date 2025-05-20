@@ -1,8 +1,7 @@
 
-мизисуа хех ...................... мизисуа  MIZISUA храни бог MIZISUA каждому ангела хранителя MIZISUA
-
-
-![image alt](https://github.com/wewyamoll/wewya/blob/7b48a1498aa9e56c94f3d770f07aa2f764b2f5c8/Mizi%20Alnst%20GIF%20%E2%80%93%20Mizi%20Alnst%20Alien%20%E2%80%93%20discover%20and%20share%20GIFs.gif)
-
+       𝘖𝘩 𝘮𝘺 𝘤𝘭𝘦𝘮𝘢𝘵𝘪𝘴
+             𝘏𝘰𝘱𝘦 𝘵𝘩𝘢𝘵 𝘣𝘭𝘰𝘰𝘮𝘦𝘥 𝘸𝘪𝘵𝘩 𝘥𝘢𝘳𝘬𝘯𝘦𝘴𝘴 𝘯𝘪𝘨𝘩
+       𝘖𝘩 𝘮𝘺 𝘊𝘭𝘦𝘮𝘢𝘵𝘪𝘴
+             𝘚𝘵𝘢𝘺 𝘧𝘰𝘳𝘦𝘷𝘦𝘳 𝘣𝘺 𝘮𝘺 𝘴𝘪𝘥𝘦
+![image alt](https://github.com/wewyamoll/wewyamoll/blob/65ae1fad5895c0c7f5b220d82529adb236deb82b/download.gif)
 ![image alt](https://github.com/wewyamoll/wewya/blob/main/Mizisua%20Alien%20Stage%20GIF%20%E2%80%93%20Mizisua%20Alien%20stage%20Mizi%20%E2%80%93%20discover%20and%20share%20GIFs.gif?raw=true)
-![image alt](https://github.com/wewyamoll/wewya/blob/7b48a1498aa9e56c94f3d770f07aa2f764b2f5c8/503effc60afba2f579d2ad209eeeb503.gif)
